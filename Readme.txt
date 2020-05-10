@@ -34,7 +34,7 @@ This work contains 50 pages of text without appendixes, 20 figures, 29 reference
 For Accessing my CAD Assembly or any designes and
 For any clarifications plase mail or contact me:
 
-Mail: hari.shankar.ghs@pm.me
+Mail: hari.shankar.ghs@protonmail.com
 Git:  https://github.com/harighs
 LinkedIn: linkedin.com/in/harishankarghs
 
